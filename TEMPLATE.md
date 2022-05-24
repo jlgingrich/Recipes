@@ -3,4 +3,4 @@
 -   1 INGREDIENT
 
 ## Directions
-1.  STEP ONE 
+1.  STEP ONE
