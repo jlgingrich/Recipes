@@ -1,6 +1,6 @@
 # Pumpkin Pie
 ## Ingredients
--   Gluten-Free 9" Pie Crust
+-   Gluten-free 9" pie crust
 -   2 tbsp. all-purpose flour
 -   1 tsp. cinnamon
 -   1/8 tsp. cloves
@@ -9,7 +9,7 @@
 -   1/4 cup sugar
 -   3/4 cup brown sugar
 -   1 1/2 cups pumpkin purée
--   1 1/2 cups milk
+-   1 1/2 cups non-dairy milk
 -   2 large eggs, lightly beaten
 
 ## Directions

@@ -1,15 +1,15 @@
 # Zucchini Bread
 ## Ingredients
--   1 1/2 cups flour
+-   1 1/2 cups non-gluten flour
 -   1/2 teaspoon xanthan gum
 -   1/2 teaspoon salt
 -   1/2 teaspoon baking soda
 -   1/2 teaspoon baking powder
 -   1 teaspoon ground cinnamon
--   ⅔ cup semi-sweet chocolate chips
+-   2/3 cup semi-sweet non-dairy chocolate chips
 -   1/2 cup granulated sugar
 -   1/2 cup packed light brown sugar
--   2 ⅛ cups grated zucchini
+-   2 1/8 cups grated zucchini
 -   2 eggs
 -   1/4 cup canola oil
 -   1 teaspoon vanilla extract

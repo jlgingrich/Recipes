@@ -5,11 +5,11 @@
 -   1 egg
 -   1 yellow onion, peeled, trimmed, and grated
 -   3/4 cup almond flour
--   2-3 tablespoons hot sauce
+-   2 tablespoons hot sauce
 -   1 teaspoon Italian seasoning
 -   2 tablespoons dried parsley
 -   1/4 teaspoon sea salt
--   ⅛ teaspoon ground black pepper
+-   1/8 teaspoon ground black pepper
 
 ## Directions
 1.  Preheat oven to 400° F.

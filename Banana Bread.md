@@ -7,7 +7,7 @@
 -   1/2 teaspoon baking soda
 -   2 tablespoons water
 -   1 cup mashed ripe bananas
--   2 cups flour
+-   2 cups non-gluten flour
 
 ## Directions
 1.  Preheat oven to 350 °F.

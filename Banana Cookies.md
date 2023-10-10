@@ -10,4 +10,4 @@
 1.  Preheat oven to 350° F.
 2.  Combine ingredients, mixing well.
 3.  Drop by teaspoon onto baking sheet.
-4.  Bake 20 minutes. 
+4.  Bake 20 minutes.

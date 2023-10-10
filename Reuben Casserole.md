@@ -4,7 +4,7 @@
 -   1 (16 ounce) can sauerkraut, drained
 -   1 pound deli sliced corned beef, cut into strips
 -   1 cup Russian-style salad dressing
--   1 1/2 cups shredded Swiss cheese replacement
+-   1 1/2 cups shredded non-dairy Swiss cheese
 
 ## Directions
 1.  Preheat oven to 400° F.

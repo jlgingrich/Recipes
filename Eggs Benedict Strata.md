@@ -7,9 +7,9 @@
 -   1 1/2 teaspoons sea salt
 -   1/2 teaspoons pepper
 -   1 teaspoon paprika
--   2 1/4 cups milk
+-   2 1/4 cups non-dairy milk
 -   1 tablespoon lemon juice
--   1/2 cup butter, melted
+-   1/2 cup non-dairy butter, melted
 
 ## Directions
 1.  Spray the bottom of a 9-in. x 12-in. baking pan with non-stick cooking spray.

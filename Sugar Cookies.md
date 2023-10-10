@@ -5,7 +5,7 @@
 -   1 tablespoon vanilla extract
 -   1 egg
 -   1 3/4 cup gluten-free flour mix
--   1/4 cup sweet rice flour
+-   1/4 cup rice flour
 -   1 teaspoon baking powder
 -   1 teaspoon xanthan gum
 -   1/4 teaspoon salt

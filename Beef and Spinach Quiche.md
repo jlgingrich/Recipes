@@ -3,7 +3,7 @@
 ## Ingredients
 -   32 oz. liquid egg whites
 -   16 oz. ground beef, lean 3% fat
--   2 cup shredded cheese substitute
+-   2 cup shredded non-dairy cheese
 -   5 oz. spinach
 -   salt and pepper to taste
 
@@ -12,11 +12,3 @@
 2.  In a skillet, brown the ground beef.
 3.  Saute the spinach in the same pan using the beef fat.
 4.  Bake uncovered at 475° F for 30 minutes.
-Nutrition Facts
-  **Calories**   315   kcal
-  -------------- ----- ------
-  **Carbs**      10    g
-  **Fat**        13    g
-  **Protein**    33    g
-  **Sodium**     600   mg
-  **Sugar**      0     g 

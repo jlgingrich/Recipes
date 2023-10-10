@@ -7,7 +7,7 @@
 -   3/4 teaspoon salt
 -   1 tablespoon butter
 -   3 beaten eggs
--   1 cup milk
+-   1 cup non-dairy milk
 -   1/4 cup melted butter
 
 ## Directions

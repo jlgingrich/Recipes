@@ -1,6 +1,6 @@
 # Maafe
 ## Ingredients
--   1lbs. beef stew meat
+-   1 lbs. beef stew meat
 -   1 onion
 -   1 teaspoon salt
 -   1 tablespoon oil

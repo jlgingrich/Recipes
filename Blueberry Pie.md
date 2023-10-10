@@ -1,6 +1,6 @@
 # Blueberry Pie
 ## Ingredients
--   2 cups flour
+-   2 cups gluten-free flour
 -   1/2 teaspoon sea salt
 -   1 cup cold butter, cubed
 -   1/2 cup cold water
@@ -8,7 +8,7 @@
 -   1/2 cup sugar
 -   1/4 teaspoon salt
 -   1/2 teaspoon ground cinnamon
--   2 tablespoons butter
+-   2 tablespoons non-dairy butter
 -   3 tablespoons cornstarch
 -   3 tablespoons water
 

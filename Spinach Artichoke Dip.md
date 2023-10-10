@@ -1,4 +1,4 @@
-# Spinach Artichoke Dip
+# Spinach Artichoke Dip (Non-DF)
 ## Ingredients
 -   8 oz. spinach leaves
 -   8 oz. low-fat cream cheese, softened

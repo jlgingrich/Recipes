@@ -8,7 +8,7 @@
 -   1/2 cup cocoa powder
 -   1/4 cup coconut flour
 -   Pinch salt
--   1/2 cup dairy free chocolate chips
+-   1/2 cup dairy-free chocolate chips
 
 ## Directions
 1.  Preheat your oven to 350℉ and line a loaf pan with parchment paper.

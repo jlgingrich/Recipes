@@ -3,7 +3,7 @@
 -   1 1/2 pounds ground beef
 -   1 egg
 -   1 onion, chopped
--   1/2 cup milk
+-   1/2 cup non-dairy milk
 -   1 cup dried bread crumbs
 -   salt and pepper to taste
 -   2 tablespoons brown sugar
