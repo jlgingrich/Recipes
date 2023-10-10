@@ -2,7 +2,7 @@
 ## Ingredients
 -   3/4 cups rice
 -   1 1/2 cups sugar
--   2 quarts milk
+-   2 quarts almond milk
 -   Nutmeg and cinnamon to taste
 
 ## Directions
